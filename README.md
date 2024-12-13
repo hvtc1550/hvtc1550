@@ -3,6 +3,7 @@
 - 🌱 I’m currently a first year college student 
 - 💞️ I’m looking to collaborate on ...
 - 📫 You can reach me at my twitter(Xs..)->@hvtc1550
+- linkedin - www.linkedin.com/in/hvtc1550
 - 😄 Pronouns: hvtc
 - ⚡ Fun fact: ...
 
